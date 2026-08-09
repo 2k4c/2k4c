@@ -17,8 +17,8 @@
 <p align="center">
 <details>
 <summary> 𓏼 ${\textsf{\color{#FFB6C1}about !!}}$⋆˚࿔ </summary>
-⠀⠀ ⠀⠀  𓈒 ຼ ͜𓐇˚ִִ𓈒   ⁦call me fawn or callie ! <br/> 
- ⠀ ⠀⠀ ⠀ 　student　 ⠀ ۪۫۫¦ ͜͝ ܄ ͜͝ ¦⠀　 he 　him　 ¹⁶<br/>
+⠀⠀ ⠀⠀  𓈒 ຼ ͜𓐇˚ִִ𓈒   ⁦call me izh or callie ! <br/> 
+ ⠀ ⠀⠀ ⠀ 　student　 ⠀ ۪۫۫¦ ͜͝ ܄ ͜͝ ¦⠀　 he 　she　 ¹⁷<br/>
   ⠀ ⠀⠀ european ⠀♡͜†𓈒ֺּׅ𓏽⠀ online sporadically <br/>
 </details>
 <details>
@@ -28,7 +28,7 @@
 </details>
 <details>
 <summary> 𓏼ㅤ ${\textsf{\color{#FFB6C1}stances !!}}$ㅤ⋆˚࿔ </summary>
-　ᦏ ͜𓏼˚　proship ( i call myself neuship around antis )<br/>
+　ᦏ ͜𓏼˚　idgaf ibf<br/>
 　ᦏ ͜𓏼˚　proqueer<br/>
   　ᦏ ͜𓏼˚　pro yume/selfship <br/>
   　ᦏ ͜𓏼˚　pro everything which doesnt cause harm
@@ -61,8 +61,8 @@
 <details>
 <summary> 𓏼 ${\textsf{\color{#FFB6C1}DNI}}$⋆˚࿔ </summary>
   　ᦏ ͜𓏼˚　basic ofc<br/>
-  　ᦏ ͜𓏼˚　antis<br/>
-  　ᦏ ͜𓏼˚　pro-contact<br/>
+  　ᦏ ͜𓏼˚　under 15<br/>
+  　ᦏ ͜𓏼˚　weirdos<br/>
   　ᦏ ͜𓏼˚　radqueers !!!!
 </details>
 <details>
@@ -70,7 +70,7 @@
   　ᦏ ͜𓏼˚　c+h always ok no matter what<br/>
   　ᦏ ͜𓏼˚　i'm always offtab and sometimes get disconnected<br/>
   　ᦏ ͜𓏼˚　w2i ALWAYS i dont see it otherwise<br/>
-  　ᦏ ͜𓏼˚　if you're an anti just go away, dont do the sneeze emote it makes you look childish<br/>
+  　ᦏ ͜𓏼˚　dont flirt, i have a gf (i know you wont, but precautions)<br/>
   　ᦏ ͜𓏼˚　if you msg me being weird or looking to start discourse i wont reply!
 </details>
 </p>
@@ -100,7 +100,7 @@
 <p align="center">
 <details>
 <summary> 𓏼ㅤ ${\textsf{\color{#FFB6C1}interests}}$⋆˚࿔ </summary>
-weak hero class, TXT, 2 kawaii 4 comfort, XLOV, D.P, kandi, stranger things, shimeji simulation, azumanga daioh, creepypasta
+formula 1, motogp, TXT, 2 kawaii 4 comfort, XLOV, D.P, kandi, nichijou, shimeji simulation, azumanga daioh, creepypasta
 </details>
 <details>
 <summary> 𓏼 ${\textsf{\color{#FFB6C1}ships}}$ㅤ⋆˚࿔ </summary>
@@ -108,7 +108,6 @@ weak hero class, TXT, 2 kawaii 4 comfort, XLOV, D.P, kandi, stranger things, shi
   　ᦏ ͜𓏼˚　michael andersen x evan myers<br/>
   　ᦏ ͜𓏼˚　patrick andersen x the habit<br/>
   　ᦏ ͜𓏼˚　tim wright x jay merrick<br/>
-  　ᦏ ͜𓏼˚　jane hopper x angela<br/>
   　ᦏ ͜𓏼˚　will the wise x will byers<br/>
   　ᦏ ͜𓏼˚　emily x nicole<br/>
   　ᦏ ͜𓏼˚　cal gabriel x andre kriegman<br/>
