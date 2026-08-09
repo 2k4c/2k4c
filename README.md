@@ -23,7 +23,7 @@
 </details>
 <details>
 <summary> 𓏼 ${\textsf{\color{#FFB6C1}ids !!}}$ㅤ⋆˚࿔ </summary>
-   fawnboy　◞𓈒　 ݂ ♡ t4t 𓏲 ˚¦ ͜͝ | ͜͝ .<br/>
+   fawnboy　◞𓈒　 ݂ ♡ masc 𓏲 ˚¦ ͜͝ | ͜͝ .<br/>
    　　˚̣̣꒰ ͜͝ ݃ ݁ ͜͝ 𓐇 ͡  　bambi　⁠ֺ unlabeled 
 </details>
 <details>
